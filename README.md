@@ -10,3 +10,4 @@
 
 ![Neddy Ned Ned](./neddy%20ned%20ned.webp)
                                 
+how do people get others to sign their ata book this is hard
